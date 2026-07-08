@@ -8,4 +8,3 @@
 - ** olá, eu sou @crwan.xz_
 
 ![](https://media2.giphy.com/media/v1.Y2lkPTZjMDliOTUyNWVrb3B5bnhndGVxZ3FlcjQ3eWhtazYzMDY4YXJzNG1hYjgzdXAxNSZlcD12MV9naWZzX3NlYXJjaCZjdD1n/v9Yf7G2RghFzYkISjk/200w.gif)
-(https://media2.giphy.com/media/v1.Y2lkPTZjMDliOTUyZTVzOWNmNnZmZ3l0azJmc3ZqMzVnYmg5dHkzbHB3YXgzdWphaGloMyZlcD12MV9naWZzX3NlYXJjaCZjdD1n/YPJGwfvvcc0UPJ15qt/200.gif)
